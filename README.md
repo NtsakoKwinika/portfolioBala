@@ -1,7 +1,7 @@
 # Facilitator
 
 # Professional Summary
-
+A motivated and enthusiastic BSc in Biomedicine and PGCE graduate with a strong foundation in scientific research, communication, and interpersonal engagement. Demonstrates the ability to translate complex scientific concepts into accessible and meaningful learning experiences for diverse learners building trust, fostering positive relationships, and creating supportive educational environments. Aspires to grow as an effective educator by leveraging subject-matter expertise, strong presentation abilities, and emerging leadership skills. Passionate about education and committed to empowering young people to develop confidence, independence, and a lifelong love for learning within a dynamic and learner-centred environment.
 
 # Education
 - Postgraduate Certificate in Education | Stadio Higher Education (November 2025)
