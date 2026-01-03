@@ -21,7 +21,7 @@ A motivated and enthusiastic BSc in Biomedicine and PGCE graduate with a strong 
 - Simplified complex concepts, improving students' comprehension and confidence.
 - Developed tailored learning strategies, emphasising communication, teaching and adaptability.
 - Developed excellent time management and organisational skills by balancing multiple students’ schedules and lesson preparation.
-- Help learners with strategies to master maths concepts and excel
+- Help learners with strategies to master maths concepts and excel.
 
 * Brand Ambassador at Media from September 2024 to date*
 - Delivered engaging presentations aligned with brand objectives, enhancing customer outreach.
