@@ -23,7 +23,7 @@ A motivated and enthusiastic BSc in Biomedicine and PGCE graduate with a strong 
 - Developed excellent time management and organisational skills by balancing multiple students’ schedules and lesson preparation.
 - Help learners with strategies to master maths concepts and excel.
 
-* Brand Ambassador at Media from September 2024 to date*
+*Brand Ambassador at Media from September 2024 to date*
 - Delivered engaging presentations aligned with brand objectives, enhancing customer outreach.
 - Collaborated with creative teams to align messaging with corporate goals.
 - Strengthened interpersonal skills through on-camera and direct client engagement.
